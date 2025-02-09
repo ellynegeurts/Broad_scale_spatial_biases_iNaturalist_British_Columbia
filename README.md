@@ -3,7 +3,7 @@
 # Contact details
 Ellyne Geurts
 
-Email: egeurts@uvic.ca
+Email: ellynegeurts@gmail.com
 iNaturalist profile: https://inaturalist.ca/people/ellyne
 
 Collaborators:
